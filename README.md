@@ -1,1 +1,1 @@
-# Haruy-Sushi2
+# Haruy-Sushi
